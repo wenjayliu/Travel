@@ -4,7 +4,7 @@
 2020年8月8日  
 8:00-9:00:  凤岗-企石  
 9:00-12:00:  企石-七星岩  
-12:00-13:00:  午餐 美食阁
+12:00-13:00:  午餐 美食阁  
 13:30-17:00: 七星岩  
 17:00-18:30: 古宋城墙（待定）  
 18:30-19:00: 晚餐_牌坊步行街-小城大厨(0758-2266799)   
@@ -25,7 +25,7 @@
 毕竟景区太大，首先还是了解下从那个门进，选择哪个停车场。  
 ![七星岩周边停车场](https://upload-images.jianshu.io/upload_images/9337456-ab4a037a0e92026b.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ### 七星岩的四个大门
-**东门** ，也就是最靠近水月岩云的最新大门，徒步几分钟即可到达玉屏岩，附近就是广场及部分商业街 特产商店等，缺点是停车场小，门面小，只能停外面的东门停车场，步行进入`七星岩风景区东门售票处` 需要15分钟，步行到`七星岩音乐喷泉` 40分钟，开车前往`七星岩音乐喷泉` 10分钟。  
+**东门** ，也就是最靠近水月岩云的最新大门，徒步几分钟即可到达玉屏岩，附近就是广场及部分商业街 特产商店等，缺点是停车场小，门面小，只能停外面的东门停车场，步行进入 `七星岩风景区东门售票处` 需要15分钟，步行到 `七星岩音乐喷泉 ` 40分钟，开车前往 `七星岩音乐喷泉` 10分钟。  
 
 ![七星岩风景区东门停车场-七星岩风景区东门售票处：15分钟](https://upload-images.jianshu.io/upload_images/9337456-bac9deffec1b2240.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
@@ -57,7 +57,7 @@
 
 ![image.png](https://upload-images.jianshu.io/upload_images/9337456-d0364814a189b955.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-可以考虑先徒步，再坐船游。详细路线可以参考[肇庆七星岩一日游攻略](https://www.gdhongsi.com/wiki/202001/315.html)
+可以考虑先徒步，再坐船游。详细路线计划打算参考[肇庆七星岩一日游攻略](https://www.gdhongsi.com/wiki/202001/315.html)
 
 
 ## 七星岩音乐喷泉
@@ -69,7 +69,8 @@
 ![image.png](https://upload-images.jianshu.io/upload_images/9337456-315d3eee01a79aa9.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 ![image.png](https://upload-images.jianshu.io/upload_images/9337456-b1b05e2038ca33b6.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-![image.png](https://upload-images.jianshu.io/upload_images/9337456-24b62a420d38bbb2.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/340)
+![image.png](https://upload-images.jianshu.io/upload_images/9337456-24b62a420d38bbb2.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/340)  
+  
 距离鼎湖山东门入口200米，14:00-22:00可入住，楼下有停车，房顶看山景，缺点：无洗漱用具，房顶阳台为公共。
 
 ## 游览鼎湖山
@@ -81,12 +82,12 @@
 
 
 ## 其他
-听说有50块一张的旅游卡，两年内有效，好似只是肇庆户口先得，或者有居住证  
+听说有50块一张的旅游卡，两年内有效，好似只是肇庆户口先得，或者有居住证。  
 其他景点 古宋城墙，白沙龙母庙， 水舞灯光秀
 
   
 
-参考：
+参考：  
 [星湖旅游官方](https://www.xhglj.com.cn)
 [东门进的旅游路径](https://www.gdhongsi.com/wiki/202001/315.html)  
 [广东肇庆市旅游，那些你不能错过的美食、美景](https://new.qq.com/omn/20200425/20200425A0DXKA00.html)    
